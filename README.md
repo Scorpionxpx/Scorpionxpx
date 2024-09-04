@@ -1,5 +1,5 @@
 # 💫 About Me:
-😄 Je suis actuellement étudiant en BTS SIO option SISR au lycée professionnel Chevrolier sur Anger 
+😄 Je suis actuellement étudiant en BTS SIO option SISR au lycée professionnel Chevrolier sur Angers 
 
 
 ## 🌐 Socials:
